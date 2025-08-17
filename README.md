@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **venkateshmedasani@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OMrhv25wctSNuVtHs_JA99hKYKfUNTbK/view?usp=drive_link](https://drive.google.com/file/d/1OMrhv25wctSNuVtHs_JA99hKYKfUNTbK/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1eiJEu49UkD95zYMul6AghTBLTPPw6Lo2/view?usp=sharing](https://drive.google.com/file/d/1eiJEu49UkD95zYMul6AghTBLTPPw6Lo2/view?usp=sharing)
 
 - ⚡ Fun fact **Looking for Summer 2026 Internships haha**
 
