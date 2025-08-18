@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **End-to-End AI/ML Pipeline on AWS with Generative AI Integration**
 
-- 🌱 I’m currently learning **I’m currently building my skills in AWS, Generative AI, AI Agents, Data Science, Machine Learning, and Large Language Models, with a focus on applying them to real-world, scalable projects.**
+- 🌱  **I’m currently building my skills in AWS, Generative AI, AI Agents, Data Science, Machine Learning, and Large Language Models, with a focus on applying them to real-world, scalable projects.**
 
 - 👨‍💻 All of my projects are available at [https://github.com/venkateshmedasani](https://github.com/venkateshmedasani)
 
