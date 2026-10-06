@@ -13,9 +13,7 @@
 
 - 📫 How to reach me **venkateshmedasani@gmail.com**
 
-- 📄 Know about my experiences [LinkedIn Profile]([https://drive.google.com/file/d/1eiJEu49UkD95zYMul6AghTBLTPPw6Lo2/view?usp=sharing])(https://www.linkedin.com/in/venkateshmedasani/)(https://www.linkedin.com/in/venkateshmedasani/))
-
-- ⚡ Fun fact **Looking for Summer 2026 Internships haha**
+- ⚡ Fun fact **Looking for 2027 New Grad Roles**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
